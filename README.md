@@ -14,4 +14,4 @@
 Το παιχνίδι [Safe On Line](https://scratch.mit.edu/projects/150385154/) δημιουργήθηκε για τη συμμετοχή μας στο Μαθητικό Συνέδριο και Φεστιβάλ Ψηφιακής Δημιουργίας της Καβάλας το 2017.
 Στην [ιστοσελίδα](https://bysafeonline.blogspot.com/) που δημιουργήθηκε για τις δράσεις που πραγματοποιήθηκαν ένα [Avatar](https://www.voki.com/site/pickup?scid=20113468&chsm=5561b223d542f81d37b3d6c67939e6cb) παρουσιάζεται ως έκπληξη για να καλωσορίσει όσους θέλουν να πλοηγηθούν.
 Ο πέμπτος ΑΕΠ δημιουργήθηκε για την επιτυχή ολοκλήρωση της ενδοϋπηρεσιακής επιμόρφωσης 100 ωρών *Active Citizenship through e-Reflect approach* το 2016.
-Αφορά στη δημιουργία ενός learning desing με θέμα τη [σχολική βία](https://bubbl.us/MzMxNzQwNi81MjE0MzY0L2QwM2FmZTk3MjNhOWY0ZjdjZDAzYTQ3NzkwZTllZDI00).
+Αφορά στη δημιουργία ενός learning desing με θέμα τη [σχολική βία](https://rb.gy/ozw5ox).
